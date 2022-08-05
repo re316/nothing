@@ -1,3 +1,2 @@
 # nothing
-try
-You can know how vegetarable I am.
+You can know how lucky I am.
